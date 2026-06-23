@@ -153,4 +153,4 @@ Please respect Telegram’s Terms of Service.
 
 ---
 
-⚡ Powered by @gotweeds
+⚡ Powered by @rehuux
